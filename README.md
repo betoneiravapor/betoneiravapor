@@ -31,5 +31,5 @@
 **Youtube Video**
 
 
-<a href="https://www.youtube.com/@jovemvento" target="blank"><img align="right" alt="GIF" src="https://static.wixstatic.com/media/6bffcc_c6098b1dd9a542e18db4ad64699be580.gif" /></a>
+<a href="https://www.youtube.com/@jovemvento" target="blank"><img align="right" alt="GIF" src="https://media1.tenor.com/m/dnFTaRvf5fUAAAAd/cat-working.gif" /></a>
 <p align="center">
